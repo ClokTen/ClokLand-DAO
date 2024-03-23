@@ -1,5 +1,5 @@
 # ClokLand-DAO
-ClokLand DAO: Where Hip-Hop Unleashes Its Creative Power! 
+ClokLand DAO: Where Hip-Hop's 4 Elements Unleashes Its Creative Power! 
 
 Step into the core of ClokLand where the heartbeat of the 4 Elements of Hip-Hop beats the hardest. The DAO!
 ClokLand DAO is your exclusive pass to shaping decisions and unleashing NFT creativity. Picture a community where you can bring your art, whatever the element, to a 4 Elements of Hip-Hop community that votes to possibly include your work in one of the ever-evolving use cases for NFTs in ClokLand.
